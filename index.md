@@ -1,6 +1,6 @@
 # Privacy Policy for Better Friend
 
-**Last Updated: May 4, 2025**
+**Last Updated: October 22, 2025**
 
 ## Introduction
 
